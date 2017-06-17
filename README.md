@@ -4,9 +4,7 @@ AUTHOR   BOOLE-YIM
 
 ---
 
-# **＄**
-
-
+# **＄thanks**
 
 
 
